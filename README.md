@@ -1,4 +1,9 @@
-### Hi there 👋
+### ola sou a fabi 😶‍🌫️
+ gosto de anime, lêr livros e mangas :)
+ 
+
+
+
 
 <!--
 **ahimarafgr/ahimarafgr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
